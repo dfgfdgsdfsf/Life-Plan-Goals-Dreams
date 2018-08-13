@@ -1,14 +1,14 @@
 # Life-Plan-Goals-Dreams
-purpose
-- Life plan (life planning)
-- goals and dreams
-- Plan and execute
-- Achieved, successful
-- motivation
-- Self-management
-- Planning (learning, self-employed)
-- short-term plan, long-term plan
-- work, do housework
-and many more
+美好的时光我们共同把握，让你的时间更有价值！
+目的
+- 人生计划（人生规划）
+- 目标和梦想
+- 计划和执行
+- 成就，成功
+- 动力
+- 自我管理
+- 规划（学习，个体经营）
+- 短期计划，长期计划
+
 +19096185788
 c9j5z9@yeah.net
